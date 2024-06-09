@@ -1,1 +1,1 @@
-# Akademik-Ertleme-Academic-Procrastination
+# Akademik-Erteleme-Academic-Procrastination
